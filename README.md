@@ -16,6 +16,6 @@
 ___
 
 
-  [straw](https://shelbylimited.straw.page)
-  [pronouns cc](https://pronouns.cc/@peakyblinders)
-  [pronouns page](https://en.pronouns.page/@brokenchords)
+  [straw](https://shelbylimited.straw.page) ¨
+  [pronouns cc](https://pronouns.cc/@peakyblinders) ¨
+  [pronouns page](https://en.pronouns.page/@brokenchords) ¨
