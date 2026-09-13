@@ -5,10 +5,12 @@ ___
 ___
 
 
-  [straw](https://shelbylimited.straw.page) ¨
-  [pronouns cc](https://pronouns.cc/@peakyblinders) ¨
-  [pronouns page](https://en.pronouns.page/@brokenchords) ¨
+<p align="center"> 
+  
+[straw](https://shelbylimited.straw.page) ˙
+[pronouns cc](https://pronouns.cc/@peakyblinders) ˙
+[pronouns page](https://en.pronouns.page/@brokenchords) ˙
 
-   
 
-  [3rd alt acc](https://github.com/sheIdonleecooper)
+[3rd alt acc](https://github.com/@sherlockie)
+[4th alt acc](https://github.com/@bonnietrap)
