@@ -9,6 +9,5 @@
 
 ___
 
-[3rd alt acc](https://github.com/@sherlockie) ˙
-
-[4th alt acc](https://github.com/@bonnietrap)
+[3rd alt acc](https://github.com/sherlockie) ˙
+[4th alt acc](https://github.com/bonnietrap)
