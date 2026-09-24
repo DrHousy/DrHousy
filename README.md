@@ -1,12 +1,1 @@
 ![lol](https://github.com/DrHousy/ashes2/blob/51f80d2f0f2d050a679441509ddcfa9cd321c38d/Ignore%20this.jfif)
-
-
-<P align="center"> lovevevevevwm my wife guys!!!! she's my wilson....stu....jonathan......etc.....i love her. I DO!!!! ok?? <3333
-  
-[pronouns cc](https://pronouns.cc/@LEEroy) ˙
-[pronouns page](https://en.pronouns.page/@checkmack)
-
-___
-
-[3rd alt acc](https://github.com/sherlyay) ˙
-[4th alt acc](https://github.com/bonnietrap)
